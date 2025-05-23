@@ -1,0 +1,92 @@
+# https://www.museesdegrasse.com/es/node/121
+
+close
+PERFUMIST
+ favorite
+Dites nous, quel est votre parfum favori ?
+search
+Skip to main content 
+Préparez votre visite | Photothèque/Vidéothèque | La Boutique | Espace Presse
+ * Français
+ * English
+ * Italian
+ * Spanish
+ * German
+
+ Musées de Grasse
+Menu
+## Navigation principale
+ * Informaciones prácticas
+ * Search
+
+ * MENU
+MIP Presentación del museo Historia del Museo Internacional de la Perfumería Historia de la perfumería El Museo y el Arte Contemporáneo
+JMIP Presentación de los jardines Un conservatorio de plantas de perfume Historia de los Jardines del Museo Internacional de la Perfumería Descubriendo los Jardines Los jardines del MIP y la Liga de Protección de las Aves
+MAHP Presentación del museo Historia del Museo de Arte y de Historia de Provenza ¿Un museo de la vida de todos los días?
+VILLA FRAGONARD Presentación de la villa Historia de la Villa-Museo Jean-Honoré Fragonard
+UNESCO Privatiser les espaces ESPACIO PRENSA GALERÍA DE FOTOS
+PREPARE SU VISITA Activités Animations Informaciones prácticas Eventos Actualités
+LES BOUTIQUES La Boutique du MIP La boutique du JMIP
+PREPARE SU VISITA
+
+ * 
+# Soutenir les Musées
+Mécénat : « soutien matériel apporté, sans contrepartie directe de la part du bénéficiaire, à une œuvre ou à une personne pour l'exercice d'activités présentant un intérêt général »
+Vous êtes une entrepriseVous êtes un particulier
+Remerciements (Liste des mécènes)
+ * 
+# Soutenir les Musées
+Mécénat : « soutien matériel apporté, sans contrepartie directe de la part du bénéficiaire, à une œuvre ou à une personne pour l'exercice d'activités présentant un intérêt général »
+Vous êtes une entrepriseVous êtes un particulier
+Remerciements (Liste des mécènes)
+
+ 1. 1
+ 2. 2
+
+ * Previous
+ * Next
+
+#### Le mécénat est le « soutien matériel apporté, sans contrepartie directe de la part du bénéficiaire, à une œuvre ou à une personne pour l'exercice d'activités présentant un intérêt général ».
+Que vous soyez un particulier, une fondation, une PME ou un grand groupe, vous pouvez contribuer au développement des collections des musées de la ville de Grasse et participer à leur diffusion auprès d’un large public.
+Votre contribution est précieuse et peut s’avérer déterminante pour :
+ * Soutenir une exposition
+ * Participer à la mise en valeur et l’enrichissement des collections (restaurations et acquisitions)
+ * Permettre la restauration et la valorisation des bâtiments muséaux,
+ * Rendre possible une politique d’accessibilité pour tous les publics.
+ * Enrichir lamédiation culturelle et les projets pédagogiques et multimédia
+
+C’est un acte philanthropique vous permettant par ailleurs de profiter d’un accès privilégié à l’ensemble des musées de la Ville de Grasse et à des avantages fiscaux conséquents. Il ouvre droit pour les donateurs (entreprises et particuliers), à une réduction d’impôts matérialisée par le reçu fiscal émis par l’organisme bénéficiaire.
+En devenant mécène, vous vous inscrivez dans l'Histoire des musées de Grasse qui vivent et rayonnent grâce au soutien de généreux donateurs depuis leur fondation.
+Téléchargement
+Mecenes MIP 2023 (002).pdf5.15 MB
+‌
+##### Los amigos del museo
+‌
+##### Ser mecenas
+‌
+##### Vida y oficios de los museos
+
+## Contact
+ * ##### MUSÉE INTERNATIONAL DE LA PARFUMERIE 2 Boulevard du Jeu de Ballon, 06130 Grasse - Tél. +33 (0) 4 97 05 58 00
+ * ##### MUSÉE D'ART ET D'HISTOIRE DE PROVENCE 2 rue Mirabeau 06130 Grasse - Tél. +33 (0) 4 93 36 80 20
+ * ##### VILLA MUSÉE JEAN-HONORÉ FRAGONARD 23 boulevard Fragonard, 06130 Grasse – Tél. +33 (0) 4 97 05 50 49
+ * ##### JARDINS DU MIP 979 chemin des Gourettes, 06370 Mouans-Sartoux - Tél. +33 (0) 4 92 98 92 69
+
+## Autres Événements
+ * DRAW ME AN ODOUR - vol. 2
+ * Les Rendez-vous aux jardins 
+ * SOPHROLOGIE AU COEUR DES JARDINS DU MIP
+ * SOPHROLOGIE AU COEUR DES JARDINS DU MIP
+ * SOPHROLOGIE AU COEUR DES JARDINS DU MIP
+ * SOPHROLOGIE AU COEUR DES JARDINS DU MIP
+ * SOPHROLOGIE AU COEUR DES JARDINS DU MIP
+ * JOURNÉE À THÈME AUTOUR D'UNE PLANTE À P…
+
+© Copyright 2020 - PaysdeGrasse -Mentions légales - Gestion des données personnelles - Accessibilité - Aide - Plan du site
+ * 
+ * 
+
+## Nous utilisons des cookies pour améliorer votre expérience utilisateur
+En poursuivant votre navigation sur ce site, vous acceptez l’utilisation de cookies [ou autres traceurs] pour vous proposer [Par exemple, des publicités ciblées adaptés à vos centres d’intérêts] et réaliser des statistiques de visites.
+More info
+Accept Non merci

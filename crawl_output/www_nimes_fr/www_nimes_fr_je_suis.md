@@ -1,0 +1,323 @@
+# https://www.nimes.fr/je-suis
+
+# À propos des cookies
+Nous collectons et traitons vos informations personnelles dans le but suivant : mesure de trafic et audience, lecture de vidéo embarquée. Pour en savoir plus, merci de lire notre politique de confidentialité.
+ * Tout accepter
+ * Tout refuser
+ * Personnaliser
+
+ * Aller au contenu
+ * Aller au bouton du menu
+ * Aller au menu
+ * Aller à la recherche
+ * Aller à la politique d'accessibilité
+
+Site officiel de la ville de Nîmes
+ * Vivre Nîmes
+ * Mes démarches
+
+ * Vivre Nîmes
+ * Mes démarches
+
+ * Mon quotidien
+#### Accès rapides 
+ * Mes démarches
+ * Passeport & CNI
+ * Foire aux questions
+ * Aides aux démarches
+ * Certificats, attestations
+ * Citoyenneté, élections
+ * Commerces
+ * Déplacement, stationnement
+ * Écoles et accueils de loisirs
+ * Environnement
+ * État civil
+ * Jeunesse, vie étudiante
+ * Papiers d'identité
+ * Petite enfance (0-3 ans)
+ * Propreté, déchets et hygiène
+ * Santé, solidarité et autonomie
+ * Sécurité, prévention
+ * Services et mairies
+ * Sport
+ * Urbanisme
+ * Vie associative et de quartiers
+ * Ma Ville
+#### Accès rapides 
+ * Toute l'actualité de Nîmes
+ * Espace presse
+ * Travailler pour la Ville
+ * La vie institutionnelle
+ * Le budget de la Ville
+ * Actes administratifs
+ * Les feuilles de route de la Ville
+ * Les grands projets
+ * Infos travaux
+ * Infos circulation
+ * Annonces immobilières
+ * Communication
+ * Présentation de Nîmes
+ * Relations internationales
+ * Travailler pour la Ville de Nîmes
+ * Que faire à Nîmes ?
+#### Accès rapides 
+ * Agenda
+ * Les Musées de la Ville
+ * Les espaces verts et naturels
+ * Culture
+ * Sport
+ * Patrimoine
+ * Nature
+ * Événements
+ * Commerces
+ * Je suis
+#### Accès rapides 
+ * Toute l'actualité de Nîmes
+ * Agenda
+ * Annuaire
+ * Commerçant
+ * Nouvel habitant
+ * Parent
+ * Étudiant
+ * Touriste
+ * Sénior
+ * Sportif
+ * Je veux
+#### Accès rapides 
+ * La plateforme de participation citoyenne
+ * L'Université de Nîmes
+ * Contacter la Ville
+ * Accéder à la carte interactive "Cadastre et Urbanisme"
+ * Consulter les offres d'emploi
+ * Demander l'enlèvement d'un tag
+ * Faire du sport
+ * Faire un signalement, demander une intervention sur l'espace public
+ * Gérer mes déchets
+ * M'informer sur l'actualité
+ * Réaliser des travaux à mon domicile
+ * Refaire mes papiers d'identité
+ * Sortir à Nîmes
+ * Suivre les travaux dans la ville
+ * Trouver une adresse, un contact
+
+## Mon quotidien 
+#### Accès rapides 
+ * Mes démarches
+ * Passeport & CNI
+ * Foire aux questions
+
+ * Aides aux démarches
+ * Certificats, attestations
+ * Citoyenneté, élections
+ * Commerces
+ * Déplacement, stationnement
+ * Écoles et accueils de loisirs
+ * Environnement
+ * État civil
+ * Jeunesse, vie étudiante
+ * Papiers d'identité
+ * Petite enfance (0-3 ans)
+ * Propreté, déchets et hygiène
+ * Santé, solidarité et autonomie
+ * Sécurité, prévention
+ * Services et mairies
+ * Sport
+ * Urbanisme
+ * Vie associative et de quartiers
+
+## Ma Ville 
+#### Accès rapides 
+ * Toute l'actualité de Nîmes
+ * Espace presse
+ * Travailler pour la Ville
+
+ * La vie institutionnelle
+ * Le budget de la Ville
+ * Actes administratifs
+ * Les feuilles de route de la Ville
+ * Les grands projets
+ * Infos travaux
+ * Infos circulation
+ * Annonces immobilières
+ * Communication
+ * Présentation de Nîmes
+ * Relations internationales
+ * Travailler pour la Ville de Nîmes
+
+## Que faire à Nîmes ? 
+#### Accès rapides 
+ * Agenda
+ * Les Musées de la Ville
+ * Les espaces verts et naturels
+
+ * Culture
+ * Sport
+ * Patrimoine
+ * Nature
+ * Événements
+ * Commerces
+
+## Je suis 
+#### Accès rapides 
+ * Toute l'actualité de Nîmes
+ * Agenda
+ * Annuaire
+
+ * Commerçant
+ * Nouvel habitant
+ * Parent
+ * Étudiant
+ * Touriste
+ * Sénior
+ * Sportif
+
+## Je veux 
+#### Accès rapides 
+ * La plateforme de participation citoyenne
+ * L'Université de Nîmes
+ * Contacter la Ville
+
+ * Accéder à la carte interactive "Cadastre et Urbanisme"
+ * Consulter les offres d'emploi
+ * Demander l'enlèvement d'un tag
+ * Faire du sport
+ * Faire un signalement, demander une intervention sur l'espace public
+ * Gérer mes déchets
+ * M'informer sur l'actualité
+ * Réaliser des travaux à mon domicile
+ * Refaire mes papiers d'identité
+ * Sortir à Nîmes
+ * Suivre les travaux dans la ville
+ * Trouver une adresse, un contact
+
+ 1. Nîmes
+ 2. Je suis
+
+# Je suis 
+## Commerçant 
+Vous êtes commerçant ou futur commerçant ? Retrouvez toutes les informations et démarches proposées par la Ville de Nîmes.
+ * Ouvrir / gérer son commerce
+ * Développer / animer son commerce
+ * Transmettre / fermer son commerce
+ * Contacter le service Commerce de la Ville
+ * Les évènements incontournables pour animer son commerce
+
+Consulter la rubrique
+## Nouvel habitant 
+Vous venez d’emménager à Nîmes ? Retrouvez toutes les informations et démarches de la Ville de Nîmes pour faciliter votre installation.
+ * Découvrir la ville de Nîmes
+ * Consulter la cartographie des équipements
+ * S'informer sur l'actualité de la ville
+ * Déménager à Nîmes (autorisation de stationnement)
+ * Inscrire son enfant en crèche municipale
+ * Inscrire son enfant à l'école
+ * S'inscrire sur les listes électorales
+ * Gérer ses déchets
+ * Voir les événements incontournables
+ * Faire du sport
+ * Les théâtres et salles de spectacle
+ * Les espaces verts et naturels
+
+Consulter la rubrique
+## Parent 
+Vous êtes parent d’un ou plusieurs enfants à Nîmes ? Retrouvez toutes les informations et démarches de la Ville de Nîmes qui vous concernent.
+ * Inscrire son enfant à l'école
+ * Inscrire son enfant en crèche
+ * Inscrire son enfant en accueil de loisirs
+ * Consulter les menus des cantines
+ * Les espaces verts et naturels
+ * Aller à la bibliothèque
+ * Trouver une aire de jeux
+ * Les théâtres et salles de spectacle
+ * Faire du sport
+
+Consulter la rubrique
+## Étudiant 
+Vous êtes étudiant ou futur étudiant à Nîmes ? Retrouvez toutes les informations et démarches de la Ville de Nîmes qui vous concernent.
+ * Étudier et travailler à Nîmes
+ * Mon quotidien : sortir, se loger, se déplacer...
+ * Développer un projet
+ * Se déplacer dans Nîmes
+ * Aller à la bibliothèque
+
+Consulter la rubrique
+## Touriste 
+Vous visitez ou souhaitez visiter Nîmes ? Retrouvez toutes les informations et démarches pour découvrir la ville de Nîmes.
+ * Découvrir la ville de Nîmes
+ * Que faire à Nîmes ?
+ * Sortir à Nîmes
+ * Retrouver les événements incontournables
+ * Les espaces verts et naturels
+ * Nîmes tourisme
+ * Aller au musée
+ * Visiter un monument romain
+
+Consulter la rubrique
+## Sénior 
+Bien vieillir à Nîmes est une priorité. Retrouvez des solutions au quotidien pour accéder aux loisirs, aux activités physiques, trouver un engagement social, préserver votre autonomie, améliorer votre quotidien et maintenir des liens sociaux forts. 
+ * En savoir plus sur le CCAS
+ * Bien bouger et s'impliquer
+ * Rester autonome
+ * Accéder aux démarches et aux aides
+
+Consulter la rubrique
+## Sportif 
+Vous êtes un Nîmois sportif ? Découvrez tout ce qui vous permet de pratiquer vos sports préférés à Nîmes !
+ * Où courir à Nîmes ?
+
+Consulter la rubrique
+Partager cette page
+ 1. 2. 
+
+## Mairie de Nîmes 
+
+ * Place de l'Hôtel de Ville, 30033 Nîmes Cedex 9
+ * Du lundi au vendredi de 8h à 17h et le samedi de 9h à 12h pour l'État civil
+ * 04 66 76 70 01
+
+## Nous suivre sur les réseaux sociaux 
+ 1. 
+
+## Liens pratiques
+ * Nous contacter 
+ * Les mairies annexes 
+ * Actes réglementaires 
+ * Marchés publics 
+
+## Services
+ * Foire aux questions 
+ * Mes démarches 
+ * Annonces immobilières 
+
+## Communication
+ * L'application Nîmes 
+ * Espace presse 
+ * Magazine Vivre Nîmes 
+ * Le Linktree de la Ville 
+ * S'inscrire à la lettre d'information Culture 
+
+## Nos autres sites
+ * Plateforme de participation citoyenne 
+ * Nîmes, Ville d'art et d'histoire 
+ * La Maison Carrée 
+ * Archives de la ville 
+ * Carré d'Art musée 
+ * Google Arts & Culture 
+ * Nîmes Tourisme 
+ * Musée de la Romanité 
+ * La Contemporaine de Nîmes 
+
+ * 
+La Maison Carrée de Nîmes est inscrite au patrimoine mondial de l’Unesco depuis le 18 septembre 2023.
+ * 
+La Ville de Nîmes s’est vu décerner en octobre 2023 le niveau argent de la marque d’Etat « Destination Pour Tous ».
+
+ * Plan du site 
+ * Mentions légales 
+ * Politique de confidentialité 
+ * Accessibilité du site : totalement conforme 
+ * Écoconception numérique 
+ * Flux RSS 
+ * Gestion des cookies 
+
+Copyright © 2025 Ville de Nîmes

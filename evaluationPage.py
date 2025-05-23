@@ -7,7 +7,7 @@ import shutil # Pour copier les fichiers
 
 # --- Configuration ---
 # Chemin vers votre dossier parent qui contient les dossiers de chaque musée
-MUSEUM_PAGES_DIR = r'C:\Users\victo\Desktop\crawl\crawl_output'
+MUSEUM_PAGES_DIR = './crawl_output'
 
 # Nom du modèle Ollama à utiliser (doit être téléchargé et disponible via Ollama)
 OLLAMA_MODEL = 'gemma3:4b'
