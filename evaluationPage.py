@@ -10,7 +10,7 @@ import shutil # Pour copier les fichiers
 MUSEUM_PAGES_DIR = r'C:\Users\victo\Desktop\crawl\crawl_output'
 
 # Nom du modèle Ollama à utiliser (doit être téléchargé et disponible via Ollama)
-OLLAMA_MODEL = 'gemma3:4b'
+OLLAMA_MODEL = 'qwen3:30b-a3b'
 
 # Adresse de votre serveur Ollama (par défaut). Ne changez que si nécessaire.
 OLLAMA_HOST = 'http://localhost:11434'
