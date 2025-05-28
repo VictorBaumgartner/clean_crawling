@@ -1,10 +1,8 @@
 This is a two-part system designed to process crawled web content (specifically Markdown files) related to museums (in fact, these are just the websites that I crawl for now)!
-
 1.  **Script 1 (Evaluator):** Evaluates the relevance of each Markdown page to museum/art content using an LLM (Ollama) and copies highly relevant pages to a new directory.
 2.  **Script 2 (Merger):** Takes the relevant pages from Script 1, merges the content for each museum into a single file, and removes duplicate paragraphs.
 
 The overall goal is to distill a large collection of crawled museum pages into a concise, relevant, and de-duplicated dataset, likely for further processing like creating embeddings or populating a database.
-
 Here's a `README.md` to explain both scripts and their combined workflow:
 
 # Museum Content Processing Pipeline
