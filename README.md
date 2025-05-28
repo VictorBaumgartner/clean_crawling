@@ -181,19 +181,8 @@ After identifying relevant pages, this script aggregates their content. It ensur
 ✅ Your final, processed museum data will be in the output directory of Script 2 (e.g., `musee infos`).
 ```
 
-Okay, first, to answer your question:
-
-**Yes, you should paste the ```` (triple backticks) in your `README.md` file.**
-
-The triple backticks are Markdown syntax used to create a "fenced code block."
-*   ````markdown` (or ````python`, ````bash`, etc., to specify the language for syntax highlighting) starts the code block.
-*   The code itself goes on the lines between the opening and closing backticks.
-*   ```` ends the code block.
-
-So, when you see ```` in my examples, it means "this is how you tell Markdown to display the following text as code." You copy the backticks and the text inside them into your `.md` file.
 
 ---
-
 
 
 Now, here is the explanation for the CSV unique element extractor script:
